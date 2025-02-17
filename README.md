@@ -3,7 +3,9 @@
 
 Grupo Formado pelos alunos:
 > CESAR VALENTIM SILVA
+
 > JOAO PEDRO SANTOS OLIVEIRA
+
 > WILLIANS CARVALHO DA SILVA
 
 Com apoio da Professora:
